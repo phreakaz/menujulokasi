@@ -1,0 +1,2 @@
+# menujulokasi
+menujulokasi.blogspot.com
